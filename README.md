@@ -1,1 +1,1 @@
-Notes for all videos are available here for Free - https://register.educosys.com/new-courses/32-free-machine-learning-course
+Notes for all videos are available here for Free - [https://educosys.com/course/free-ai-course]([url](https://educosys.com/course/free-ai-course))
